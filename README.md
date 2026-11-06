@@ -6,9 +6,9 @@
 
 ## 星辰VPN官方注册入口
 
-**官方注册地址：** [点击进入星辰VPN官网](https://a.wwaann.com/?s=xcvpn)
+**官方注册地址：** [点击进入星辰VPN官网](https://a.ggddxx.com/?s=xcvpn)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 ## 星辰VPN简介
 
@@ -86,12 +86,12 @@
 
 可以通过下面的备用地址查看其他可用机场：
 
-[备用其他VPN机场](https://wwaann.com/)
+[备用其他VPN机场](https://ggddxx.com/)
 
 ## 官方入口
 
-- **星辰VPN注册入口：**  [星辰VPN](https://a.wwaann.com/?s=xcvpn)
-- **备用地址：**[备用其他VPN机场](https://wwaann.com/)
+- **星辰VPN注册入口：**  [星辰VPN](https://a.ggddxx.com/?s=xcvpn)
+- **备用地址：**[备用其他VPN机场](https://ggddxx.com/)
 
 
 ## 免责声明
